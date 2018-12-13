@@ -1,4 +1,4 @@
-# Front-end-Developer-Fintech-Central-London-Up-to-80-000
+# Front-end Developer // Fintech // Central London // Up to £80,000
 
 This one's a cool one! Tech driven environment, flexible working, all with the aim of helping others the best they can.
 
